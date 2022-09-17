@@ -1,5 +1,7 @@
 ### Hi 👋
-I am a very excited and curious young person who is in love with self-development, knows what he wants. I have made many attempts. I started two start-ups and had some significant success. I'm a very energetic person and whizz-kid, have very high social skills. I keep my environment alive with my energy and carry it forward. I have led many multifunctional teams. Now it's time to meet new teams.
+I am a very excited and curious young person who is in love with self-development, knows what he wants. I'm a very energetic person and whizz-kid, have very high social skills. I keep my environment alive with my energy and carry it forward. I have led many multifunctional teams. Now it's time to meet new teams.
+
+https://www.linkedin.com/in/yasar-sonmez/
 
 <!--
 **ysrsnmz/ysrsnmz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
